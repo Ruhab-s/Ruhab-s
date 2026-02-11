@@ -45,8 +45,8 @@
 ---
 
 ## 📫 Connect With Me
-- 💼 LinkedIn: (Add your link here)
-- 📧 Email: (Add your email here)
+- 💼 LinkedIn: Ruhab Shikalkar
+- 📧 Email: work.ruhab@gmail.com
 
 ---
 
